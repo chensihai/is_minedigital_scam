@@ -21,7 +21,7 @@ Don't know yet.
 But how it scams people?
 Social media like facebook.com or linkedin.com etc, become good tools for it to scam people.
 The scammer has own account the the social media website, and the website like to promo people to connect according to them related background，these increase the rate of people connections.
-
+The scammer call themself hunter, and the target people are pigs.
 
 
 https://blockbook-bitcoin.binancechain.io/address/381R4dLAq5tcx5Mpr7d7BEfC6gKwnD2fMC?filter=All
