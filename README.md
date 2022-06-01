@@ -39,7 +39,7 @@ https://www.scamadviser.com/check-website/minedigital.xyz
 Whenever you do transation buy or sell some options, you get optunity to loose all your money in your accout  https://github.com/chensihai/is_minedigital_scam/blob/main/photo_2022-05-29_16-03-54.jpg
 
 # Is https://minedigital.xyz leagal business in North America?
-It's said that it target at North America market. But it doesn't has the leagal business license in North America. This expect leagal departments of govenment to start an invstigation.
+It's said that it target at North America market. But it doesn't has the leagal business license in North America. This expect govenment related department to start an invstigation.
 
 # How many register users on https://minedigital.xyz?
 From one of the scammer or hunter，it has 200,000 users in North Americe.
