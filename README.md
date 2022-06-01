@@ -1,6 +1,6 @@
 # is_minedigital_scam
 Yes, http://minedigital.xyz is a scam website. 
-Why? http://minedigital.xyz deplcates the UI of https://minedigital.exchange, and https://minedigital.exchange refused to take any garantee for http://minedigital.xyz
+Why? http://minedigital.xyz duplicates the UI of https://minedigital.exchange, and https://minedigital.exchange refused to take any garantee for http://minedigital.xyz
 
 This is an email answer from https://minedigital.exchange supports.
 Hello Simon,
