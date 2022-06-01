@@ -53,3 +53,6 @@ When you do fund through BTC or ETH to it, it assign your money to internal data
 https://blockbook-bitcoin.binancechain.io/address/381R4dLAq5tcx5Mpr7d7BEfC6gKwnD2fMC?filter=All
 https://ethplorer.io/zh/address/0xee174b5e16824cb7e7ebaccd1b224f464e0ba17d#chart=candlestick&pageSize=100
 The above token address shows the platform all moneys come in/out, not only yours; you don't own your private wallet.
+
+# What relationship between http://minedigital.xyz  http://minedigital.net?
+ http://minedigital.xyz is the next generation of http://minedigital.net, for more about http://minedigital.net please check  https://www.forexpeacearmy.com/community/threads/mine-digital-scam-www-minedigital-net.72715/
