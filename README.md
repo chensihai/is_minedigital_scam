@@ -37,3 +37,6 @@ https://www.globalantiscam.org/about
 
 
 https://www.scamadviser.com/check-website/minedigital.xyz
+
+# Is https://minedigital.xyz leagal business in North America?
+Now, it doesn't has the leagal business in North America.
