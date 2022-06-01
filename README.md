@@ -43,7 +43,7 @@ It's said that it target at North America market. But it doesn't has the leagal 
 
 # How many register users on https://minedigital.xyz?
 From one of the scammer or hunter，it has 200,000 users in North Americe.
-According to the evidence, it might has only 20000 users in North Americe.
+According to the evidence, it might has less than 20000 users in North Americe.
 https://blockbook-bitcoin.binancechain.io/address/381R4dLAq5tcx5Mpr7d7BEfC6gKwnD2fMC?filter=All
 https://ethplorer.io/zh/address/0xee174b5e16824cb7e7ebaccd1b224f464e0ba17d#chart=candlestick&pageSize=100
 
