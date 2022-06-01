@@ -38,5 +38,9 @@ https://www.globalantiscam.org/about
 
 https://www.scamadviser.com/check-website/minedigital.xyz
 
+# How you will loose your money on https://minedigital.xyz?
+Whenever you do transation buy or sell some options, you get optunity to loose all your money in your accout  https://github.com/chensihai/is_minedigital_scam/blob/main/photo_2022-05-29_16-03-54.jpg
+
 # Is https://minedigital.xyz leagal business in North America?
-Now, it doesn't has the leagal business in North America.
+Now, it doesn't has the leagal business license in North America.
+
