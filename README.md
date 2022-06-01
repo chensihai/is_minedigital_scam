@@ -32,3 +32,6 @@ https://www.forexpeacearmy.com/community/threads/mine-digital-scam-www-minedigit
 https://minedigital.exchange/knowledge-posts/avoid-scams/
 
 https://www.globalantiscam.org/about
+
+
+https://www.scamadviser.com/check-website/minedigital.xyz
