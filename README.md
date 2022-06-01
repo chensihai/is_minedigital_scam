@@ -1,1 +1,1 @@
-# is_minedigital_spam
+# is_minedigital_scam
