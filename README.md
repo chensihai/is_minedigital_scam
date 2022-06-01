@@ -1,4 +1,4 @@
-# is minedigital.xyz scam website
+# is minedigital.xyz a scam website
 Yes, http://minedigital.xyz is a scam website. 
 
 # Why? 
