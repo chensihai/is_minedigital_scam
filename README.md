@@ -22,7 +22,7 @@ Don't know yet.
 
 # But how does it scams people?
 Social media like facebook.com or linkedin.com etc, become good tools for it to scam people.
-The scammer has own account the the social media website, and the website like to promo people to connect according to them related background，these increase the rate of people connections.
+The scammer has own account the the social media website, and the website like to promo people to connect according to them related background，these increase the rate of people connections. The scammer will show you how easy she earn the money. Whenever you have any question, she will explain to you. She encourage you to start a small amount for trying. If you agree to do it, the sad story will begin from here.
 
 # Is your money safty on the website https://minedigital.xyz
 
